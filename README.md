@@ -1,4 +1,4 @@
-# info     '     >_&lt;   !   . '' 
+# info     '    . '' 
      .   '  c+h freely  ,  c+h tends to bring me a lot of comfort so please feel free to join '.
      
      . ' normally offtab , with a moot , making skins or sitting around . ! '
