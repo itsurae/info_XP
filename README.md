@@ -1,13 +1,13 @@
-# info_XP
- .      '     >_&lt;   !   . '' 
-     .   '  c+h freely  ,  i LOVE c+h it brings me a lot of comfort so PLEASE feel free to join me ^_^ '.
+# info     '     >_&lt;   !   . '' 
+     .   '  c+h freely  ,  c+h tends to bring me a lot of comfort so please feel free to join '.
      
      . ' normally offtab , with a moot , making skins or sitting around . ! '
      
-         .  ' i might seem very awkward , can't help it  ! ' . . . ' where the roblox phsycological horror / arg ponies @ ? </3 ' 
+         .  ' i can tend to be very awkward , i apologise ' . . . ' you might also know me as mori or aza , don't call me these though, refer to me by the skin I am using thank you. ' 
          
-            ..   '  i'm  kinda  unstable  , soo ,, heh  O_o ..  i'm  so sorry if you  catch me in at a time where  my spelling is incoherent  , it happens sometimes . '
+            ..   '  i tend to have mood switches that can change completely how i act and my personality , i'm figuring out if i have something wrong , just be aware. . '
             
-               .   '   ivan (bad things) fictionkin  ,   007n7 / c00lkidd  fictionkin  ,  skeet  synpath  ,  booker  synpath   ,  shedletsky  synpath  >o< . '
+               .   '   fictionkin ;;  ivan (bad things)  ,  007n7  /  sevz  ,  Shedletsky  ,  Dued1  , '
                
-            .   '   I HATE FORSAKEN !  SEPERATE ART FROM ARTIST  ;  FUCK THE DEVS .  '
+            .   '   don't associate any of my skins from forsaken , only do so with two time and chance .  .  '
+                                          
